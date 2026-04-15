@@ -1,4 +1,4 @@
-# Windrose Mod Menu 2026
+# Windrose Mod Menu 2026 - God Mode, Infinite Gold & Super Ship Speed
 
 ### Detailed Review & First Impressions
 
